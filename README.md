@@ -1,3 +1,4 @@
+![gif](https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif)
 ### a simple student.😬<br/>
 ### like new things.😆<br/>
 ### have a nice day~😘<br/>
