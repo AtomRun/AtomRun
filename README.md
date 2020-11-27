@@ -1,4 +1,6 @@
-### Hi there 👋
+### a simple student.😬<br/>
+### like new things.😆<br/>
+### have a nice day~😘<br/>
 
 <!--
 **AtomRun/AtomRun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
